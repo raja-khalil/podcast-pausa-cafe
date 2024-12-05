@@ -1,4 +1,3 @@
-# 🎙️ Pausa pro Café Podcast ☕
 
 # 🎙️ Pausa pro Café Podcast ☕
 
